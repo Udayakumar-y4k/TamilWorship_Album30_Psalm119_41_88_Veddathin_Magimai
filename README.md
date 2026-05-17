@@ -2,7 +2,7 @@
 Album 30 Psalm 119 Series | வேதத்தின் மகிமை 
 Tamil Christian Worship Album
 Psalm 119 (Vav to Lamed sections)
-Verses 41-88
+Verses 41-96
 A deep prayer series for God’s Word, deliverance, hope, and steadfast love.
 
 Study Note:
